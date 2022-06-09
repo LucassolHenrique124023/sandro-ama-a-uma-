@@ -1,2 +1,2 @@
-# sandro-ama-a-uma-
+# sandro-amaça-uma-
 trabalho
